@@ -1,6 +1,6 @@
 # Bruno Sullivan
 
-Economics and Statistics student at the University of Toronto with interests in asset management, credit markets, financial econometrics, and international economic policy.
+Master of Financial Economics student at the University of Toronto with interests in fixed income markets, sales and trading and financial econometrics.
 
 ## Selected Research
 
